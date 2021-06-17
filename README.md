@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @r-smith11
-- 👀 I’m interested in technology, hockey, guitar, etc.
+- 👀 I’m interested in technology, music, hockey, guitar, video games, etc.
 - 🌱 I’m currently learning Computing at Queen's University, with a specialization in Computer Science.
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me: Personal email - ryan_d_smith@rogers.com, Work email - ryan.smith@thinkingcapital.ca
